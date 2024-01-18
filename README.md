@@ -13,7 +13,7 @@ BBC News Mundo. (2019, noviembre 6). “Asu mare”, “qué palta”, “estar 
 
 Representación de la Violencia
 
-Autores: María Mercedes Saltos Cueva y Rosemary Victoria Valle Matamoros
+Autores 2: María Mercedes Saltos Cueva y Rosemary Victoria Valle Matamoros
 
 Varios autores han discutido la jerga urbana como parte fundamental del imaginario urbano. Según Arantes (2000), la jerga de la autenticidad urbana puede verse como “culturalismo de mercado”, lo que sugiere que la jerga no sólo refleja la realidad urbana, sino que también contribuye a la construcción material y la reconstrucción de la ciudad. Por otro lado, Ocaña (2021) menciona que la jerga urbana podría considerarse un lenguaje en sí mismo, incluso arte si consideramos la poesía (o el rap) urbana. Estos enfoques apoyan la idea de que la jerga urbana no es sólo un medio de comunicación, sino que también juega un papel en la representación y construcción de la vida urbana, ya que permiten a los habitantes de la ciudad comunicarse y comprender las dinámicas de su entorno, creando una especie de comunidad lingüística. Mediante el uso de términos y expresiones propias, se construyen vínculos de pertenencia y se establecen códigos compartidos que fortalecen la identidad urbana.
 
