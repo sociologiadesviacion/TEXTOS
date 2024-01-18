@@ -2,7 +2,7 @@
 
 Autores 1 : Kelly leonard dranguet,  YARIBEL QUIÑONEZ,   ILIANA MUÑOZ
 
-En el contexto socioeconómico, existe una multiplicidad de factores interrelacionados queacarrean en comportamientos violentos, entre los que se destacan la pobreza y la desigualdad.
+En el contexto socioeconómico, existe una multiplicidad de factores interrelacionados que acarrean en comportamientos violentos, entre los que se destacan la pobreza y la desigualdad.
 La carencia de acceso equitativo a oportunidades educativas y laborales, la discriminación, losconflictos interpersonales, la falta de empatía, el estrés, la discriminación y la escases de
 habilidades pacifista resolutivas de conflictos de exacerba esta problemática. todo esto genera la aparicion de nuevas jergas que de una forma u otro representan a ciertos grupos de personas . 
 
