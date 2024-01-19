@@ -34,17 +34,10 @@ Bibliografía Española, A. d. (2010). Venta. Obtenido de Diccionario de America
 
 Autores 4: Josué Vera; Pedro Sumba; Jostyn Pruna
 
-En los ultimos años el indice del delito y la violencia se han encontrado en constante aumento dentro del terriotorio ecuatoriano, tanto así que ya somos considerados de los países mas peligrosos de la región, estos fenomenos han ocurrido debido a diversos factores socioeconomicos, politicos y sociales, el entendimiento de estas ciencias es fundamental para el repositorio.
-
-Para la división de elementos del delito hemos dividido el repositorio en 3 categorias que faciliten el entendimiento:
-- Vocabulario o Jerga
-- Imágenes
-- Audios
-
-Para la construcción y validación de este repositorio hemos tenido que indagar e inmiscuirnos dentro de las principales redes sociales en busca de elementos representativos del delito y la violencia pero más allá de eso la principal fuente de conocimiento es el vivir de manera cercana la situación en los denominados barrios más peligrosos del Ecuador.
+En Ecuador, la violencia y el delito se manifiestan a través de diversas formas, algunas de las cuales se ven reflejadas en la jerga local. Por ejemplo, la delincuencia organizada ha dado lugar a delitos como extorsiones o también popularizadas   localmente como "vacunas", robos de autos, secuestros, asaltos a negocios, narcotráfico y asesinatos, lo que ha generado una crisis de seguridad en el país. Asimismo, la violencia digital, incluyendo la ciberviolencia y la violencia machista en el ámbito digital, también es una preocupación creciente en Ecuador. Estos fenómenos reflejan la complejidad y la gravedad de la violencia y el delito en el país, y la importancia de abordarlos desde una perspectiva integral que tenga en cuenta su impacto en la sociedad.
 
 Bibliografía
-Bibliografía Española, A. d. (2001). Venta. Obtenido de Diccionario de la lengua española: https://www.rae.es/drae2001/compinche. Cedeño, H (10/01/24). Entrevista directa indagando en el Delito y la Violencia. (Vera, J ; Sumba, P; Pruna, J). Zapatos en los cables. (2022, 18 noviembre). FM LA METRO. https://fmlametrocorrientes.com/2022/11/18/que-significan-las-zapatillas-colgadas-en-los-cables-de-luz/. Enmascarillado. (2022, 14 diciembre). Univision. https://www.univision.com/local/nueva-york-wxtv/hombre-amenaza-a-cajera-de-mcdonald-s-para-llevarse-unas-hamburguesas-y-todo-quedo-en-video-video. Extractos material audiovisual: https: https://youtu.be/O5OrVhOqA18?si=73_ctp9BG_DBZ1dB
+Bibliografía Española, A. d. (2001). Venta. Obtenido de Diccionario de la lengua española: https://www.rae.es/drae2001/compinche. Cedeño, H (10/01/24). Entrevista directa indagando en el Delito y la Violencia. (Vera, J ; Sumba, P; Pruna, J). 
 
  
 
