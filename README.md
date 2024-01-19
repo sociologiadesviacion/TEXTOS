@@ -20,3 +20,14 @@ Varios autores han discutido la jerga urbana como parte fundamental del imaginar
 Fuentes utilizadas en el apartado:
 •	Barcelona, U. A. de. (2015). ¿Cómo afecta la escucha en movimiento al enganche con los contenidos sonoros? Recuperado 13 de enero de 2024, de UABDivulga Barcelona Investigación e Innovación website: http://www.uab.cat/web/detalle-noticia/como-afecta-la-escucha-en-movimiento-al-enganche-con-los-contenidos-sonoros-1345680342040.html?noticiaid=1345687350359
 •	Ocaña, J., Peromingo, R., & Nuño, J. (2019). Sinosanal undifferentiated carcinoma with liver metastasis: surgical management. Journal of Surgical Case Reports, 2019(2). https://doi.org/10.1093/jscr/rjz041.
+
+Autores 3: Avilés Andrade Eva Mercedes; González García Rigo Gabriel; Vélez Litardo Nicole Melannie
+
+Como sabemos la violencia y la delincuencia son temas muy complejos y preocupantes al rededor del mundo. La violencia se puede definir como cualquier acto que cause daño físico, psicológico o emocional a una persona o grupo de estas mismas y esta  representada en muchos ámbitos de la vida, como las calles, los medios de comunicación, los hogares, las escuelas y los lugares de trabajo.
+Por otra parte la delincuencia se refiere a cualquier actividad ilegal que una persona o grupo de personas realiza con el fin de obtener beneficios personales causando así problemas sociales de gran magnitud provocando elevadas incidencia y consecuencias negativas tanto físicas, psicológicas, legales, sociales que perjudican el entorno de convivencia de las personas. 
+Estos temas tienen una relación estrecha en la que se pueden obtener graves consecuencias para las personas y la sociedad en general.
+En la siguiente presentación observaremos y analizaremos como la violencia y la delincuencia tienen relacion con las problemáticas delictivas y sociales que ocurren en el Ecuador.
+
+Fuentes: Se usaron audios personales para la recopilación de sucesos que ha puesto la vida de otros en peligro.
+
+Bibliografía Española, A. d. (2010). Venta. Obtenido de Diccionario de Americanismos: https://www.asale.org/damer/campanero Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. G. Vélez, Entrevistador) Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. Vélez, Entrevistador) NIOLA, J. L. (2012). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/2020/1/tle193.pdf Oleas, C. P. (2015). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/23977/1/tesis.pdf RAE. (s.f.). Real Academia Española. Obtenido de https://www.rae.es/inicio
