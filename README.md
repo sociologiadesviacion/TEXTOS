@@ -39,5 +39,17 @@ En Ecuador, la violencia y el delito se manifiestan a través de diversas formas
 Bibliografía
 Bibliografía Española, A. d. (2001). Venta. Obtenido de Diccionario de la lengua española: https://www.rae.es/drae2001/compinche. Cedeño, H (10/01/24). Entrevista directa indagando en el Delito y la Violencia. (Vera, J ; Sumba, P; Pruna, J). 
 
- 
+ Manifestación de la Violencia
+
+Autores 5: Gilces Romero Norkys Odalys, Mero Valeriano Emily Leonela, Suarez Muñoz Jexy Dayana
+
+La violencia y la delincuencia son fenómenos sociales que afectan a la convivencia y la seguridad de las personas, especialmente en las zonas urbanas. Estos fenómenos se expresan a través de un lenguaje propio, una jerga que refleja las características, valores y actitudes de quienes la usan. La jerga de la violencia y la delincuencia es un medio de comunicación, pero también una forma de identificación y diferenciación de los grupos que la practican. 
+La jerga de la violencia y la delincuencia tiene una función pragmática, ya que sirve para transmitir información, órdenes, amenazas, etc. Pero también tiene una función simbólica, ya que expresa una visión del mundo, una forma de entender la vida y la muerte, el poder y la resistencia, la lealtad y la traición, etc. La jerga de la violencia y la delincuencia es, en definitiva, una manifestación de la cultura de la violencia y la delincuencia, que se nutre de diversas fuentes, como el narcotráfico, las bandas juveniles, el crimen organizado, etc.
+
+Bibliografía
+•	ENFOQUES SITUACIONALES DE LA DELINCUENCIA Y LA VIOLENCIA:EL CASO DE AMÉRICA LATINA. (s.f.). Obtenido de https://www.wilsoncenter.org/sites/default/files/media/documents/publication/ENFOQUES%20SITUACIONALES%20DE%20LA%20DELINCUENCIA%20Y%20LA%20VIOLENCIA.pdf
+•	Paz Gil, I., & Andreu Pérez, A. R. (s.f.). Violencia y delincuencia juvenil: Algunas recomendaciones para su prevención. Obtenido de Injuve: https://www.injuve.es/sites/default/files/2018/47/publicaciones/10._violencia_y_delincuencia_juvenil._algunas_recomendaciones_para_su_prevencion.pdf
+•	'Perico', 'mois', 'borrado', 'vicariato'... el lenguaje del hampa llega a las callesas. (24 de 12 de 2008). Obtenido de 20minutos: https://www.20minutos.es/noticia/438899/0/diccionario/narcotrafico/jerga/
+
+
 
