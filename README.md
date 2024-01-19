@@ -43,3 +43,8 @@ Para la división de elementos del delito hemos dividido el repositorio en 3 cat
 
 Para la construcción y validación de este repositorio hemos tenido que indagar e inmiscuirnos dentro de las principales redes sociales en busca de elementos representativos del delito y la violencia pero más allá de eso la principal fuente de conocimiento es el vivir de manera cercana la situación en los denominados barrios más peligrosos del Ecuador.
 
+Bibliografía
+Bibliografía Española, A. d. (2001). Venta. Obtenido de Diccionario de la lengua española: https://www.rae.es/drae2001/compinche. Cedeño, H (10/01/24). Entrevista directa indagando en el Delito y la Violencia. (Vera, J ; Sumba, P; Pruna, J). Zapatos en los cables. (2022, 18 noviembre). FM LA METRO. https://fmlametrocorrientes.com/2022/11/18/que-significan-las-zapatillas-colgadas-en-los-cables-de-luz/. Enmascarillado. (2022, 14 diciembre). Univision. https://www.univision.com/local/nueva-york-wxtv/hombre-amenaza-a-cajera-de-mcdonald-s-para-llevarse-unas-hamburguesas-y-todo-quedo-en-video-video. Extractos material audiovisual: https: https://youtu.be/O5OrVhOqA18?si=73_ctp9BG_DBZ1dB
+
+ 
+
