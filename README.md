@@ -34,6 +34,8 @@ Bibliografía Española, A. d. (2010). Venta. Obtenido de Diccionario de America
 
 Autores 4: Josué Vera; Pedro Sumba; Jostyn Pruna
 
+***Enfoques referentes al delito en el Ecuador***
+
 En Ecuador, la violencia y el delito se manifiestan a través de diversas formas, algunas de las cuales se ven reflejadas en la jerga local. Por ejemplo, la delincuencia organizada ha dado lugar a delitos como extorsiones o también popularizadas   localmente como "vacunas", robos de autos, secuestros, asaltos a negocios, narcotráfico y asesinatos, lo que ha generado una crisis de seguridad en el país. Asimismo, la violencia digital, incluyendo la ciberviolencia y la violencia machista en el ámbito digital, también es una preocupación creciente en Ecuador. Estos fenómenos reflejan la complejidad y la gravedad de la violencia y el delito en el país, y la importancia de abordarlos desde una perspectiva integral que tenga en cuenta su impacto en la sociedad.
 
 Bibliografía
