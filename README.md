@@ -33,3 +33,13 @@ Fuentes: Se usaron audios personales para la recopilación de sucesos que ha pue
 Bibliografía Española, A. d. (2010). Venta. Obtenido de Diccionario de Americanismos: https://www.asale.org/damer/campanero Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. G. Vélez, Entrevistador) Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. Vélez, Entrevistador) NIOLA, J. L. (2012). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/2020/1/tle193.pdf Oleas, C. P. (2015). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/23977/1/tesis.pdf RAE. (s.f.). Real Academia Española. Obtenido de https://www.rae.es/inicio
 
 Autores 4: Josué Vera; Pedro Sumba; Jostyn Pruna
+
+En los ultimos años el indice del delito y la violencia se han encontrado en constante aumento dentro del terriotorio ecuatoriano, tanto así que ya somos considerados de los países mas peligrosos de la región, estos fenomenos han ocurrido debido a diversos factores socioeconomicos, politicos y sociales, el entendimiento de estas ciencias es fundamental para el repositorio.
+
+Para la división de elementos del delito hemos dividido el repositorio en 3 categorias que faciliten el entendimiento:
+- Vocabulario o Jerga
+- Imágenes
+- Audios
+
+Para la construcción y validación de este repositorio hemos tenido que indagar e inmiscuirnos dentro de las principales redes sociales en busca de elementos representativos del delito y la violencia pero más allá de eso la principal fuente de conocimiento es el vivir de manera cercana la situación en los denominados barrios más peligrosos del Ecuador.
+
