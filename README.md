@@ -1,6 +1,6 @@
 # TEXTOS
 
-Autores 1 : Kelly leonard dranguet,  YARIBEL QUIÑONEZ,   ILIANA MUÑOZ
+Autores 001 : KELLY LEONARD DRANGUET,  YARIBEL QUIÑONEZ,   ILIANA MUÑOZ
 
 En el contexto socioeconómico, existe una multiplicidad de factores interrelacionados que acarrean en comportamientos violentos, entre los que se destacan la pobreza y la desigualdad.
 La carencia de acceso equitativo a oportunidades educativas y laborales, la discriminación, losconflictos interpersonales, la falta de empatía, el estrés, la discriminación y la escases de
