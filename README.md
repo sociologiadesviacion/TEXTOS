@@ -54,4 +54,20 @@ Bibliografía
 •	'Perico', 'mois', 'borrado', 'vicariato'... el lenguaje del hampa llega a las callesas. (24 de 12 de 2008). Obtenido de 20minutos: https://www.20minutos.es/noticia/438899/0/diccionario/narcotrafico/jerga/
 
 
+Autores 006: Mora Reyes Brigitte Anatyr, Pinargote Catagua Juliana Elizabeth y Velez Valle Jenniffer Stefania
+
+Es imperativo partir del poder para comprender cómo con el abuso de él surge la violencia y la misma encamina a la criminalidad; la convivencia de la desigualdad, desequilibrio, asimetrías y violencia, significan la presencia del poder, lo que significa que es en sí es una relación de poder sin ninguna paridad o igualdad total, el mismo se encuentra presente en todos los contextos buscando determinados fines u objetivos; en este sentido, la violencia es una manifestación del poder y este se enriquece siempre que el colectivo -grupo con intereses en común- se mantenga unido.
+La violencia destruye el poder legítimo y plasma el terror, puesto que esta consigue someter al resto a la propia voluntad, abarcando daños que pueden partir desde lo físico hasta lo emocional en diferentes aspectos sociales: familiar, escolar, salud, trabajo; los múltiples y diversos fenómenos violentos que existen afectan simultáneamente a los individuos, estructuras sociales e instituciones. 
+Por otro lado, la delincuencia hace referencia a acciones contrarias que la ley y el derecho respaldan, por lo mismo tiene sanción jurídica acorde a la gravedad de la falta, los órganos judiciales son los que deciden el tiempo o tipo de condena, de por medio se haya la corrupción -enemiga de la justicia-, que es un modo de abuso de poder y una forma de actuar violentamente también -las gravedades difieren-. 
+Ambos conceptos, violencia y delincuencia, se unen íntimamente para reforzar un ambiente caótico que al permanecer mucho tiempo latente, se va naturalizando en vez de optar priorizar el control del poder y mitigación de los abusos. En el contexto ecuatoriano, dicta el poder de los mafiosos por encima de la misma estructura estatal, provocando la extensión de la violencia a nivel nacional, generando epicentros de inseguridad dado que la ausencia del Estado crea una ciudadanía vulnerable que se obliga a afrontar una ola delictiva que repercute a nivel social, cultural, económico y político. 
+
+Bibliografía: 
+- Euroinnova Business School. (2023, 28 diciembre). Importancia de la inclusión en la escuela. https://www.euroinnova.ec/blog/que-es-la-delincuencia
+- Periódico UNAL. (s. f.). https://periodico.unal.edu.co/articulos/los-efectos-que-la-inseguridad-y-el-miedo-al-crimen-generan-en-las-personas#:~:text=Salud-,Los%20efectos%20que%20la%20inseguridad%20y%20el%20miedo%20al%20crimen,casos%20de%20ansiedad%20y%20depresi%C3%B3n
+- Arendt, H. (2005, 2006). Sobre la Violencia. Madrid: Alianza Editorial.
+
+
+
+
+
 
