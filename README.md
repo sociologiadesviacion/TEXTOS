@@ -31,3 +31,5 @@ En la siguiente presentación observaremos y analizaremos como la violencia y la
 Fuentes: Se usaron audios personales para la recopilación de sucesos que ha puesto la vida de otros en peligro.
 
 Bibliografía Española, A. d. (2010). Venta. Obtenido de Diccionario de Americanismos: https://www.asale.org/damer/campanero Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. G. Vélez, Entrevistador) Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. Vélez, Entrevistador) NIOLA, J. L. (2012). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/2020/1/tle193.pdf Oleas, C. P. (2015). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/23977/1/tesis.pdf RAE. (s.f.). Real Academia Española. Obtenido de https://www.rae.es/inicio
+
+Autores 4: Josué Vera; Pedro Sumba; Jostyn Pruna
