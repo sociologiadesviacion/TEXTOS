@@ -66,6 +66,17 @@ Bibliografía:
 - Periódico UNAL. (s. f.). https://periodico.unal.edu.co/articulos/los-efectos-que-la-inseguridad-y-el-miedo-al-crimen-generan-en-las-personas#:~:text=Salud-,Los%20efectos%20que%20la%20inseguridad%20y%20el%20miedo%20al%20crimen,casos%20de%20ansiedad%20y%20depresi%C3%B3n
 - Arendt, H. (2005, 2006). Sobre la Violencia. Madrid: Alianza Editorial.
 
+Autores 007: Helen Sanchez, Xiomara Avila
+
+Las jergas que presentaremos a continuación es un tipo de lenguaje especial que utilizan los grupos delictivos o grupos de crimen organizado en el Ecuador y que se ha hecho conocer con el paso del tiempo adaptándose entre ellos como una forma de comunicarse entre sí, pero de una manera apresurada en los últimos meses por los distintos sucesos de crímenes terroristas que se han registrado en el país.  Estas jergas a menudo no son comprendidas por quienes no se encuentran pertenecientes a dichos grupos delictivos ya que no son términos de uso común, sin embargo, es necesario tener noción del tema y  ese será el objetivo de este repositorio, observar, distinguir y analizar dichos términos.
+Referencias Bibliograficas:
+
+- Jerga Policial. (s/f). Scribd. Recuperado el 18 de enero de 2024, de https://es.scribd.com/document/348957734/Jerga-Policial
+- [8:10 a. m., 18/1/2024] Xiomi Ug: Castillo, B. (2022, diciembre 3). Quito: choros dispararon a los ‘polis’ durante persecución. Extra.
+https://www.extra.ec/noticia/actualidad/quito-choros-dispararon-polis-persecucion-76979.html
+[8:12 a. m., 18/1/2024] Xiomi Ug: González, M. A. (2023, abril 10). 22 “capos” del narcotráfico en Ecuador son buscados por un grupo élite. Primicias. https://www.primicias.ec/noticias/en-exclusiva/grupo-elite-policia-militares-cabecillas/
+- Solís, J. (2024, enero 14). Balacera en el Guasmo sur: 9 personas resultaron heridas, según reporte preliminar. El Universo. https://www.eluniverso.com/noticias/seguridad/balacera-en-el-guasmo-sur-9-personas-resutaron-heridas-segun-reporte-preliminar-nota/
+
 
 Autores 008: Katherine Michelle Tigua Mejía, Ariana Valentina Hurtado Borbor.
 
