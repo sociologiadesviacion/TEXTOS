@@ -71,6 +71,7 @@ Autores 008: Katherine Michelle Tigua Mejía, Ariana Valentina Hurtado Borbor.
 
 El lenguaje utilizado por grupos delictivos en América Latina tiene códigos y vocablos propios que cumplen funciones de secreto e identidad. Como explica el sociólogo Luis Rodríguez Manzanera (2015), analizar estas jergas criminales "permite comprender los
 códigos internos y la visión del mundo de las bandas delictivas" (p.187). El presente diccionario busca recopilar los principales términos en el ambito de violencia y delicuencial , constituyendo en una guía útil sobre su significado. Muchos de estos vocablos aparecen en noticias sobre criminalidad, pero no siempre resultan comprensibles para el público general. Esta obra aspira es acto para todos con el fin de facilitar su entendimiento.
+
 Bibliografía:
 - https://www.20minutos.es/noticia/438899/0/diccionario/narcotrafico/jerga/ 
 - https://www.cervantesvirtual.com/descargaPdf/el-proyecto-de-jergas-de-habla-hispana--un-diccionario-de-coloquialismos-del-espaol-0/ 
