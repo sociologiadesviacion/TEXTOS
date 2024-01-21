@@ -13,7 +13,7 @@ BBC News Mundo. (2019, noviembre 6). “Asu mare”, “qué palta”, “estar 
 
 Representación de la Violencia
 
-Autores 2: María Mercedes Saltos Cueva y Rosemary Victoria Valle Matamoros
+Autores 002: María Mercedes Saltos Cueva y Rosemary Victoria Valle Matamoros
 
 Varios autores han discutido la jerga urbana como parte fundamental del imaginario urbano. Según Arantes (2000), la jerga de la autenticidad urbana puede verse como “culturalismo de mercado”, lo que sugiere que la jerga no sólo refleja la realidad urbana, sino que también contribuye a la construcción material y la reconstrucción de la ciudad. Por otro lado, Ocaña (2021) menciona que la jerga urbana podría considerarse un lenguaje en sí mismo, incluso arte si consideramos la poesía (o el rap) urbana. Estos enfoques apoyan la idea de que la jerga urbana no es sólo un medio de comunicación, sino que también juega un papel en la representación y construcción de la vida urbana, ya que permiten a los habitantes de la ciudad comunicarse y comprender las dinámicas de su entorno, creando una especie de comunidad lingüística. Mediante el uso de términos y expresiones propias, se construyen vínculos de pertenencia y se establecen códigos compartidos que fortalecen la identidad urbana.
 
@@ -21,7 +21,7 @@ Fuentes utilizadas en el apartado:
 •	Barcelona, U. A. de. (2015). ¿Cómo afecta la escucha en movimiento al enganche con los contenidos sonoros? Recuperado 13 de enero de 2024, de UABDivulga Barcelona Investigación e Innovación website: http://www.uab.cat/web/detalle-noticia/como-afecta-la-escucha-en-movimiento-al-enganche-con-los-contenidos-sonoros-1345680342040.html?noticiaid=1345687350359
 •	Ocaña, J., Peromingo, R., & Nuño, J. (2019). Sinosanal undifferentiated carcinoma with liver metastasis: surgical management. Journal of Surgical Case Reports, 2019(2). https://doi.org/10.1093/jscr/rjz041.
 
-Autores 3: Avilés Andrade Eva Mercedes; González García Rigo Gabriel; Vélez Litardo Nicole Melannie
+Autores 003: Avilés Andrade Eva Mercedes; González García Rigo Gabriel; Vélez Litardo Nicole Melannie
 
 Como sabemos la violencia y la delincuencia son temas muy complejos y preocupantes al rededor del mundo. La violencia se puede definir como cualquier acto que cause daño físico, psicológico o emocional a una persona o grupo de estas mismas y esta  representada en muchos ámbitos de la vida, como las calles, los medios de comunicación, los hogares, las escuelas y los lugares de trabajo.
 Por otra parte la delincuencia se refiere a cualquier actividad ilegal que una persona o grupo de personas realiza con el fin de obtener beneficios personales causando así problemas sociales de gran magnitud provocando elevadas incidencia y consecuencias negativas tanto físicas, psicológicas, legales, sociales que perjudican el entorno de convivencia de las personas. 
@@ -32,7 +32,7 @@ Fuentes: Se usaron audios personales para la recopilación de sucesos que ha pue
 
 Bibliografía Española, A. d. (2010). Venta. Obtenido de Diccionario de Americanismos: https://www.asale.org/damer/campanero Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. G. Vélez, Entrevistador) Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. Vélez, Entrevistador) NIOLA, J. L. (2012). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/2020/1/tle193.pdf Oleas, C. P. (2015). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/23977/1/tesis.pdf RAE. (s.f.). Real Academia Española. Obtenido de https://www.rae.es/inicio
 
-Autores 4: Josué Vera; Pedro Sumba; Jostyn Pruna
+Autores 004: Josué Vera; Pedro Sumba; Jostyn Pruna
 
 ***Enfoques referentes al delito en el Ecuador***
 
@@ -43,7 +43,7 @@ Bibliografía Española, A. d. (2001). Venta. Obtenido de Diccionario de la leng
 
  Manifestación de la Violencia
 
-Autores 5: Gilces Romero Norkys Odalys, Mero Valeriano Emily Leonela, Suarez Muñoz Jexy Dayana
+Autores 005: Gilces Romero Norkys Odalys, Mero Valeriano Emily Leonela, Suarez Muñoz Jexy Dayana
 
 La violencia y la delincuencia son fenómenos sociales que afectan a la convivencia y la seguridad de las personas, especialmente en las zonas urbanas. Estos fenómenos se expresan a través de un lenguaje propio, una jerga que refleja las características, valores y actitudes de quienes la usan. La jerga de la violencia y la delincuencia es un medio de comunicación, pero también una forma de identificación y diferenciación de los grupos que la practican. 
 La jerga de la violencia y la delincuencia tiene una función pragmática, ya que sirve para transmitir información, órdenes, amenazas, etc. Pero también tiene una función simbólica, ya que expresa una visión del mundo, una forma de entender la vida y la muerte, el poder y la resistencia, la lealtad y la traición, etc. La jerga de la violencia y la delincuencia es, en definitiva, una manifestación de la cultura de la violencia y la delincuencia, que se nutre de diversas fuentes, como el narcotráfico, las bandas juveniles, el crimen organizado, etc.
