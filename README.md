@@ -99,5 +99,11 @@ Referencias empleadas para este apartado:
 -	Jergas extraídas de diferentes programas de televisión (RTS, Teleamazonas), Periódicos (EXTRA, EL PAÍS).
 -	Frases extraídas de la plataforma ‘Instagram’, de la cuenta ‘Magia TV’
 
+Autores 011: Jefferson Macías, Sully Pillasagua, Jennifer Plua 
+La jerga delictiva ecuatoriana se caracteriza por el uso de palabras y frases que tienen un significado diferente al que se les da en el lenguaje coloquial, de esta manera consideramos que es un fenómeno complejo que tiene sus raíces en la historia, la cultura y la economía del país, ya que se trata de un lenguaje especializado que utilizan los delincuentes para comunicarse entre sí y ocultar sus actividades a las autoridades.  Al utilizar un lenguaje que no es comprensible para la mayoría de la gente, los delincuentes de esta manera consiguen esquivar a las autoridades y así evitan que los detecten e investiguen.
+
+Bibliografía:
+La jerga delictiva en el Ecuador: orígenes, usos y funciones, de Luis Fernando Carrión (2019).
+La jerga delictiva ecuatoriana: una aproximación sociolingüística, de Ángel Espina Barrio (2014)
 
 
