@@ -87,6 +87,17 @@ Bibliografía:
 - https://www.20minutos.es/noticia/438899/0/diccionario/narcotrafico/jerga/ 
 - https://www.cervantesvirtual.com/descargaPdf/el-proyecto-de-jergas-de-habla-hispana--un-diccionario-de-coloquialismos-del-espaol-0/ 
 
+ECUADOR Y UNA GUERRA QUE ATERRA
+
+Autor: Celinda Mosquera Q.
+
+Sería relevante analizar la situación actual en Ecuador, incluyendo datos sobre el número de víctimas, desplazados y daños materiales. Autores como Noam Chomsky y Howard Zinn han abordado en sus obras la temática de los conflictos y la situación de las poblaciones afectadas.
+
+Referencias empleadas para este apartado: 
+
+-	Recordando a Howard Zinn – Rebelion. (2024, January 19). Rebelion.org. https://rebelion.org/recordando-a-howard-zinn/
+-	Jergas extraídas de diferentes programas de televisión (RTS, Teleamazonas), Periódicos (EXTRA, EL PAÍS).
+-	Frases extraídas de la plataforma ‘Instagram’, de la cuenta ‘Magia TV’
 
 
 
