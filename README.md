@@ -89,7 +89,7 @@ Bibliografía:
 
 ECUADOR Y UNA GUERRA QUE ATERRA
 
-Autor: Celinda Mosquera Q.
+Autor 009: Celinda Mosquera Q.
 
 Sería relevante analizar la situación actual en Ecuador, incluyendo datos sobre el número de víctimas, desplazados y daños materiales. Autores como Noam Chomsky y Howard Zinn han abordado en sus obras la temática de los conflictos y la situación de las poblaciones afectadas.
 
