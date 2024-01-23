@@ -99,6 +99,21 @@ Referencias empleadas para este apartado:
 -	Jergas extraídas de diferentes programas de televisión (RTS, Teleamazonas), Periódicos (EXTRA, EL PAÍS).
 -	Frases extraídas de la plataforma ‘Instagram’, de la cuenta ‘Magia TV’
 
+Autores 010: Karla Crespo, Daniela Lindao, Valeria Zambrano.
+
+El presente documento contiene jergas delictivas que fueron recopiladas en la ciudad de Guayaquil, Ecuador, durante el año 2024.
+Estas jergas son términos y expresiones utilizados por los delincuentes para comunicarse entre sí. Se caracterizan por ser abreviaturas, palabras inventadas o palabras con significados diferentes al habitual.
+
+El estudio de las jergas delictivas puede ser útil para los siguientes propósitos:
+Comprender el lenguaje y la cultura del crimen organizado
+Investigar casos de crimen organizado
+Desarrollar estrategias de prevención del crimen
+
+Referencias de jergas:
+https://www.cervantesvirtual.com/descargaPdf/el-proyecto-de-jergas-de-habla-hispana--un-diccionario-de-coloquialismos-del-espaol-0/
+https://www.jerga.net/
+https://hispanismo.cervantes.es/recursos/jergas-hispanas
+https://www.facebook.com/alrojovivotelemundo?mibextid=ZbWKwL 
 
 Autores 011: Jefferson Macías, Sully Pillasagua, Jennifer Plua 
 
